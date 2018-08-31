@@ -27,3 +27,4 @@
 7) Aux provocations de toutes sortes, tu ne répondras pas, Odin s’en chargera // To provocations you shall not answer, Odin will smite the problem.
 
 ![](https://image.noelshack.com/fichiers/2018/35/5/1535731557-odin.jpg)
+
